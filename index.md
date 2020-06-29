@@ -17,3 +17,5 @@ Mikao Usui (15 August 1865 – 9 March 1926) was the founder of a form of spirit
 > Just for today, I will do my work honestly.
 > Just for today, I will give thanks for my many blessings.
 > Just for today, I will be kind to my neighbour and every living thing.
+
+<img src="https://i.pinimg.com/originals/eb/da/85/ebda85b418e4cd15ddcdbd3ccde982a8.jpg"/>
