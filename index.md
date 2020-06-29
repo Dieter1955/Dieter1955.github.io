@@ -9,3 +9,11 @@ Mikao Usui (15 August 1865 – 9 March 1926) was the founder of a form of spirit
 * reserved - due to his Japanese upbringing
 * authentic - Thinking and acting are always in harmony
 * sacrificial - healed with hands and feet during the great earthquake
+
+## The Five Reiki Principles are as follows:
+
+> Just for today, I will not worry.
+> Just for today, I will not be angry.
+> Just for today, I will do my work honestly.
+> Just for today, I will give thanks for my many blessings.
+> Just for today, I will be kind to my neighbour and every living thing.
